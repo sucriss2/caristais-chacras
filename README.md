@@ -1,1 +1,1 @@
-# caristais-chacras
+# cristais-chacras
